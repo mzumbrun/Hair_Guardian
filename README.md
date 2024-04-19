@@ -16,4 +16,4 @@ More information can be obtained by sending inquiry to zumupnorth@yahoo.com
 
 
 
-tags: alopecia, hair loss, scalp cooling, cooling cap, chemo, chemotherapy
+Some people may find this work useful for alopecia, hair loss, scalp cooling, cooling cap, chemo, chemotherapy, head trauma, headaches, or mild trauma.
