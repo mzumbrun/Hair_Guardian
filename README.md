@@ -13,3 +13,7 @@ The Hair Guardian was tested as intended under anticipated conditions of use and
 •	provides cooldown rates and stay cool scalp temperatures that are technically similar with its predicate, Paxman. 
 
 More information can be obtained by sending inquiry to zumupnorth@yahoo.com
+
+
+
+tags: alopecia, hair loss, scalp cooling, cooling cap, chemo, chemotherapy
